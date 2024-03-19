@@ -5,3 +5,5 @@
 - 📫 How to reach me: be in the netherlands and then go to statenweg 61D
 - 😄 Pronouns: pienda
 - ⚡ Fun fact: i like penutbutter
+
+PS: not to forget i learned very much from @memegamerlol
