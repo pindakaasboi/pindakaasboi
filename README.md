@@ -8,4 +8,3 @@
 - 🐹 My hamster's name is: Pinkeltje
 - 🍣 My fav food is sushi
 - 🥷 My fav sport is Krav-Maga
-PS: not to forget i learned very much from @memegamerlol
