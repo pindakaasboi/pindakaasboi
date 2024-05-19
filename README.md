@@ -1,9 +1,11 @@
 - 👋 Hi, I’m @pindakaasboi
 - 👀 I’m interested in coding!
-- 🌱 I’m currently learning python
+- 🌱 I’m currently learning python and pywin32
 - 💞️ I’m looking to collaborate on idk im 10 years old bro
-- 📫 How to reach me: be in the netherlands and then go to statenweg 61D
+- 📫 How to reach me: pindakaasboi@gmail.com
 - 😄 Pronouns: pienda
 - ⚡ Fun fact: i like penutbutter
-
+- 🐹 My hamster's name is: Pinkeltje
+- 🍣 My fav food is sushi
+- 🥷 My fav sport is Krav-Maga
 PS: not to forget i learned very much from @memegamerlol
