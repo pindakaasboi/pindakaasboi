@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @pindakaasboi
 - 👀 I’m interested in coding!
 - 🌱 I’m currently learning python and pywin32
-- 💞️ I’m looking to collaborate on idk im 10 years old bro
+- 💞️ I’m looking to collaborate on idk im 11 years old bro
 - 📫 How to reach me: pindakaasboi@gmail.com
 - 😄 Pronouns: pienda
 - ⚡ Fun fact: i like penutbutter
